@@ -1,16 +1,17 @@
-## Hi there 👋
+# cola no meu perfil! 🤩
 
-<!--
-**aguiar0125/aguiar0125** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ - oi me chamo isaias!
+ 
+ - curto jogar bola e sair com os amigos
 
-Here are some ideas to get you started:
+ - curto futebol
+ 
+ 
+![](https://media1.tenor.com/m/y3FjE-FWRq8AAAAd/kaka100-kaka.gif)
+   
+ 
+ - sou estudante
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ - e meu time e o palmeiras 💚
+
+ - me segue la no insta! @aguiar.nzx
