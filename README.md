@@ -12,6 +12,6 @@
  
  - sou estudante
 
- - e meu time e o palmeiras 💚
+ - e meu time e o corinthians 💚
 
  - me segue la no insta! @aguiar.nzx
